@@ -1,5 +1,4 @@
 [EUROPE] Bybit new-user bonus — 45€ withdrawable [Referral]
-[EUROPE] Bybit new-user bonus — 45€ withdrawable [Referral]
 
 If you're in Europe and don't have a Bybit account yet, there's currently a new-user reward worth ~45€.
 
